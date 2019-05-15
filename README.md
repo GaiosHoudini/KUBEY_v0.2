@@ -1,1 +1,1 @@
-# GitRep
+lūdzu izlasi mani!
